@@ -1,5 +1,3 @@
-# Montag Morgen, die Nacht ist geschafft!
-
 Guten Morgen meine Lieblingsmenschen!
 
 Wie habt ihr geschlafen? Ich hoffe, die Nacht war ruhig und erholsam für euch und ging schnell vorbei!
