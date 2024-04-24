@@ -24,3 +24,7 @@ Ich bin so froh, dass du in meinem Leben bist. Jede Entscheidung und Fehlentsche
 Ich wünsche euch einen ganz tollen Tag - wir sprechen uns später noch!
 
 Bis dahin, passt auf euch auf. In Liebe, Papabär 🐻
+
+*** 
+
+PS: Das nächste Versteck ist: der Eckschrank in der Küche!
